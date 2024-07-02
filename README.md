@@ -1,1 +1,1 @@
-🚨 [Putin is a war criminal](https://www.reuters.com/world/europe/icc-says-may-investigate-possible-war-crimes-after-russian-invasion-ukraine-2022-02-25/). [Russians are bombing hospitals](https://arstechnica.com/science/2022/03/russia-attacked-ukrainian-hospitals-violating-humanitarian-law-who-says/). 🚨
+Greetings, stranger. Hope you have a great day. 🙂
